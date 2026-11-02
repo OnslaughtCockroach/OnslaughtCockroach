@@ -14,4 +14,4 @@
 
 *My darling Crybaby <3*
 
-<sub>*(we didnt forget about him dw..we love him too)*</sub>)
+<sub>*(we didnt forget about him dw..we love him too)*</sub>
